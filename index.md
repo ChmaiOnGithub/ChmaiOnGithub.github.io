@@ -5,3 +5,4 @@ Bud Spencer wurde als Carlo Pedersoli am 31.10.1929 in Neapel geboren. Es war Sc
 * Familienmensch
 * Schauspieler
 * Erfinder
+> Wenn Du in den Spiegel schaust und siehst, dass Du älter geworden bist, dann ahme das Geräusch eines Furzes nach und sage 'Scheiß drauf'!
